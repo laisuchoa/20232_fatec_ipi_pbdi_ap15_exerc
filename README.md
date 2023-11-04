@@ -1,1 +1,3 @@
-# 20232_fatec_ipi_pbdi_ap15_exerc
+Laís Uchoa Rabelo Mendes (2041382221030)
+
+Ronaldo Souza Chaves (2041382221016)
